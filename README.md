@@ -1,2 +1,2 @@
-# KMSPICO
-KMSPICO + LOADER [ QUALQUER WINDOWS ]
+# KMSPICO + LOADER [ QUALQUER WINDOWS ]
+https://www.mediafire.com/file/wvqz6smvvjtjht6/Ativador.rar/file
